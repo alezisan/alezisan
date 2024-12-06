@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Olá! Eu me chamo Alezi Ferreira, tenho 27 anos e, atualmente, sou estudante da Trybe!
+Olá! Eu me chamo Alezi Ferreira, tenho 28 anos e, atualmente, sou estudante da Trybe!
 
 <br>
 
